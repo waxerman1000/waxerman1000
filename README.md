@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @waxerman1000.
 - 👀 I’m interested in Video Games!
 - 🌱 I’m currently learning uhh.. video games.
-- 💞️ I’m looking to collaborate on nothing at the moment
 - 📫 How to reach me; email at greenboysaz@gmail.com
 
 <!---
